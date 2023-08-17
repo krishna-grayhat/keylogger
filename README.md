@@ -14,3 +14,4 @@ step 5 : the store in your email addrs in every 2 min , if you wanna change the 
 
    Note : -    it is much better if you go on youtube and search my youtube channel 'gray hat' and find my keylogger video
       on their i did explain how to use this keylogger in very easy way.
+ 
